@@ -1,5 +1,5 @@
 Hey
-there among us
+there is no meaning in life and a white van
 asdffgdsdsafgsaasdsad
 whats
 it
