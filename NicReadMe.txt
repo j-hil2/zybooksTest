@@ -1,5 +1,5 @@
 Hey
-there is no meaning in life and a white van
+there is something worth fighting for
 asdffgdsdsafgsaasdsad
 whats
 it
